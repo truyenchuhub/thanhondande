@@ -9,4 +9,4 @@ Bản thân muốn biến mạnh hơn, chúa tể bản thân vận mệnh!
 Bản thân muốn Tiếu Ngạo Thiên Hạ , trở thành một đời Đan Đế!
 
 Link truyện:
-[https://tutruyenchu.com/truyen/Than-Hon-dan-de](https://tutruyenchu.com/truyen/Than-Hon-dan-de)
+[https://truyenchuhub.org/truyen/Than-Hon-dan-de](https://truyenchuhub.org/truyen/Than-Hon-dan-de)
